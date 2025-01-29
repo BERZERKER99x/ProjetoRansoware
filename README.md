@@ -1,0 +1,2 @@
+# ProjetoRansoware
+ContribuiçãonNewby
